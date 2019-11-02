@@ -1,5 +1,6 @@
 # 小蝌蚪网 最新地址发布 HttpS://69av.tv
-## ⭐️ 👉 最新访问地址 ：HttpS://kedou288.com
+## ⭐️ 👉 最新访问地址 ：HttpS://kedou388.com
+## ⭐️ 👉 备用访问地址 ：HttpS://kedou288.com
 ## ⭐️ 👉 进入页1 ：HttpS://kedou.la
 ## ⭐️ 👉 进入页2 ：HttpS://kedou.love
 ## ⭐️ 👉 备用导航 ：HttpS://96av.tv
