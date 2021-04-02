@@ -1,11 +1,7 @@
 建议使用UC浏览器打开以下网址
 # 小蝌蚪网 最新地址发布 HttpS://69av.tv
+## ⭐️ 👉 最新访问地址 ：HttpS://kedou9999.com
 ## ⭐️ 👉 最新访问地址 ：HttpS://kedou7777.com
-## ⭐️ 👉 最新访问地址 ：HttpS://kedou777.com
-## ⭐️ 👉 最新访问地址 ：HttpS://kedou991.com
-## ⭐️ 👉 最新访问地址 ：HttpS://kedou188.com
-## ⭐️ 👉 最新访问地址 ：HttpS://kedou199.com
-## ⭐️ 👉 最新访问地址 ：HttpS://kedou588.com
 ## ⭐️ 👉 进入页1 ：HttpS://kedou.la
 ## ⭐️ 👉 进入页2 ：HttpS://kedou.one
 ## ⭐️ 👉 备用导航 ：HttpS://96av.tv
